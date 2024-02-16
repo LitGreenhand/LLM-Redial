@@ -9,4 +9,4 @@ Please read this statement carefully and confirm the following before applying t
 
 We need your following information: name, organization, professional direction, position, reason for application, email address.
 
-Send the application email to: chenxinkim@hdu.edu.cn
+Send the application email to: jin.jay.chen23@gmail.com
